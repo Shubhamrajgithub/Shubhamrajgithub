@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **shubham.raj.personal@gmail.com**
 
-- ⚡ Fun fact **I think I am**
+- ⚡ Fun fact **I think I can read your mind, let me guess for now, are u thinking about me?**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
